@@ -17,3 +17,6 @@ Really liked this tutorial, and although I realised I have to go in-depth with s
 I also gave myself some kind of goal. 
 
 Let's do some progress ;)
+
+
+P.S. I did forget about this but here it is; url to the image I used :  https://www.pinterest.com/pin/11540542782206072/
